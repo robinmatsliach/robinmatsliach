@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @robinmatsliach
-- 👀 I’m interested in the histore of pyjamas in the 30's
+- 👀 I’m interested in the history of pyjamas in the 30's
 - 🌱 I’m currently learning how to make french croissants
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me : robinm@qrgenetics.com
